@@ -21,6 +21,9 @@ University Professor, Educational Researcher and Peer Reviewer based in Peru.
 - Qualitative Research
 - Educational Innovation
 - Intercultural Education
+- Educational Technology
+Digital Transformation in Education
+Curriculum Planning and Evaluation
 
 ## Current Projects
 
